@@ -1,0 +1,3 @@
+# Krunkerio-Hacks-2020
+Krunkerio-Hacks-2020 by SHEEP8
+Downloading krunkerio hacks is an excellent way of earning more points. Like many people, you might not know how to win the krunker.io game. You can reach a point where you are stuck especially ate the medium level of the game, and you might feel like you can’t actually win the game. Well, playing krunker.io game is not that rough. All you need to do is to get access to krunkerio hacks. That way, you will be able to use certain keys to operate the game. If you want to change the aim mode, you can use T, and you can enhance the speed by using P. U can help you to change the text color, and Y can help in changing the ESP style.
